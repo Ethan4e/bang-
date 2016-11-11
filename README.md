@@ -6,3 +6,5 @@ Henry Hedges
 Will Schwanke
 
 Here is a link to purchase the game (please note: we did not make it, we do not get any money from this app - it's made just for fun).
+
+BANG! and dV Giochi are registered trademarks of daVinci Editrice S.R.L.
